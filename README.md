@@ -4,7 +4,7 @@ A fogyókúra az olyan embereknek jelent kihívást, akik nagyon szeretnek enni.
 
 Mint minden munkához az életben, így a fogyókúrához is elengedhetetlen a **jó hozzáállás**. És mi kell a jó hozzáálláshoz? **Motiváció**. Miből fakad a motiváció? A **kitűzött cél**(ok)ból. Mi a legfőbb kitűzött célja egy fogyókúrának általában? A testsúlycsökkenés. Az előbbiek alapján megállapíthatjuk, hogy cél(ok)ból fakad a motiváció, a motivációból a jó hozzáállás, és a jó hozzáállás vajon elég egy eredményes fogyókúrához? Látni fogjuk később, hogy nem elég, viszont nélkülözhetetlen. Tudományosan szólva, **a jó hozzáállás az eredményes fogyókúra szükséges, de nem elégséges feltétele**. 
 
-Térjünk vissza a célokhoz. A célok fontosak, hiszen a motiváció alapját képezik. A testsúlycsökkenésen kívül milyen más célokat fogalmazhatunk még meg? Pl. helyes étkezési szokások felvétele, megtanulni egészségesebb ételeket főzni / összeállítani, a hájt izommá alakítani stb. 
+Térjünk vissza a célokhoz. A célok fontosak, hiszen a motiváció alapját képezik. A testsúlycsökkenésen kívül milyen más célokat fogalmazhatunk még meg? Pl. helyes étkezési szokások felvétele, megtanulni egészségesebb ételeket főzni / összeállítani stb. 
 
 ### <u>1. tanács</u>: Érdemes minél több célt gyűjteni, hogy annál nagyobb legyen a motiváció.
 
